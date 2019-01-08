@@ -1,3 +1,3 @@
-<p align="center"><img src="https://imgur.com/a/ecrTKYT"></p>
+<p align="center"><img src="https://i.imgur.com/HsPs1EW.png"></p>
 
 ## SISTEMA CS & CIA
